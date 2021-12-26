@@ -1,4 +1,5 @@
 # Mikalai Kalodzka
+![My foto](IMG_1909-1.jpg)
 
 ## Contact Info
 
